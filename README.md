@@ -1,1 +1,1 @@
-today is my scm viva
+today is my viva
